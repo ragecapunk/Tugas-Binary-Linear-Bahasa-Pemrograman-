@@ -1,1 +1,1 @@
-# Tugas-Binary-Linear-Bahasa-Pemrograman-
+Ivan Edward (20230801411)
